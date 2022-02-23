@@ -1,1 +1,0 @@
-# hkbujourdmc2022
